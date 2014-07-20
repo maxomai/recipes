@@ -9,6 +9,6 @@
 ## Direction
 
 Put ice, vodka and pineapple juice in a shaker. Shake well.
-Pour into a pint glass. Add ginger ale until full.
+Pour mix (without ice!) into a pint glass. Top off with ginger ale.
 
 Serve immediately.
