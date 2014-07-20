@@ -2,7 +2,7 @@
 
 ## Ingredients
   *  Hot Pepper-infused Vodka, 1 shot
-  *  Pineapple Juice, 1/2 cup
+  *  Pineapple Juice, 1 cup
   *  Ginger Ale
   *  Ice
 
